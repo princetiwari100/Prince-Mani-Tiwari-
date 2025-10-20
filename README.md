@@ -1,1 +1,1 @@
-# Prince Mani Tiwar
+# Prince Mani Tiwari
